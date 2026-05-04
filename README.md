@@ -1,1 +1,1 @@
-# newsletter-operators-independent-media-linkedin-group
+# Newsletter Operators & Independent Media LinkedIn Group
